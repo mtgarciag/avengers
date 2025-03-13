@@ -1,0 +1,2 @@
+Investigar planes.
+Capturar.
